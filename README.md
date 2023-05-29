@@ -1,2 +1,2 @@
-# **Word**
+# 💙 Word
 My Microsoft Word Projects
